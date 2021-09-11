@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @deyu3110
+- 👀 I’m interested in Metin2
+- 🌱 I’m currently learning how to build a server
+- 💞️ I’m looking to collaborate on developing myself
+- 📫 How to reach me [Sanja]#9915
